@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @paprikva
+- 👀 I’m interested in cybersecurity
+- 🌱 I’m currently learning cybersecurity
+- 📫 How to reach me write me on github!
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: i love cats<3
